@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots instant Script, the #1 Script. Includes instant win and auto-upgrade for
 
 
 
